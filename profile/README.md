@@ -19,7 +19,7 @@ My name is Leandro, and I’m a curious student learning about **technology, pro
 
 ---
 
-### 📫 How to reach me:
+### 📫 How to reach me: lelecoqzy@gmail.com
 I'm still learning, but soon you'll see more of my projects here.
 
 ---
